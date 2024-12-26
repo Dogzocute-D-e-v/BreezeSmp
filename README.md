@@ -1,4 +1,4 @@
-# **Breeze SMP Season 2 Rules** 🌬️  
+# **Breeze SMP Season 2 Rules** 🥼  
 
 Welcome to **Breeze SMP** Season 2! We're excited to have you here. Please read the following rules to ensure a fun, fair, and competitive environment for everyone.  
 
@@ -79,4 +79,4 @@ This server is all about Lifesteal, PVP, and survival! Enjoy yourself, be strate
 
 ---
 
-**Enjoy your time on Breeze SMP Season 2!** 🎉🌬️
+**Enjoy your time on Breeze SMP Season 2!** 🎉
